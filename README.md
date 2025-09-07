@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on uhhh uhh err erm uhm
 - 📫 How to reach me: scream really loud into the nearest forest
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i am ridiculously mentally unstable
+- ⚡ Fun fact: my favorite color is blue
 
 <!---
 desolation-81/desolation-81 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
